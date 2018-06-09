@@ -114,3 +114,23 @@ conferenced out
 rocketing off
 tile up
 surfed away
+missed out on  - was not able to recieve
+done away with - abolished
+have it in for - be determined to find fault with
+catch up with - get up-to-date with
+get round to - find time for
+gone/come down with - started to suffer from
+feel out with - quarreled with
+take it out on - get unfairly cross with
+branch out - expand
+been snowed under - had a lot to deal with
+laid off - made redundant from their jobs
+bottomed out - reached the lowest point
+cheer him up - make him feel happier
+chill out - relax
+worked out - upset
+simmered down - become calmer
+got carried away - lost control - become excited
+opened up - told me secrets
+took me aback - surprised /shocked
+bubbling over with - full of 
